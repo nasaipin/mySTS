@@ -1,0 +1,2 @@
+# mySTS
+games of Ghana
